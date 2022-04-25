@@ -1,0 +1,1 @@
+# Say Network Token on the Solana Network. Eventually we will be the first layer 1 blockchain to decentralize social media. #uSAY #uLIVE #uNFT Be paid for the energy YOU provide to the network.
